@@ -2,9 +2,9 @@
 
 <center>隐私权政策</center>
 
-<p align="right">更新日期：2020年06月29 日</p>
+<p align="right">更新日期：2020年06月30 日</p>
 
-<p align="right">生效日期：2020年06月30 日</p>
+<p align="right">生效日期：2020年07月1 日</p>
 
 引言
 
